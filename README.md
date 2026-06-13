@@ -2,8 +2,11 @@
 
 
 Piracy Stream-only Site List 2025 compiled by aalubanakalu 
+
 ( this doen't contain the master index of downloadable torrent providers )
+
 ( some url might not work, greedy capitalists often tend to assassinate us pirates.... but we are invincible )
+
 
 https://www.cineby.at/
 
